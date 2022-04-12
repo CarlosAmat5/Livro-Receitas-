@@ -1,4 +1,4 @@
-Receita de frango
+**Receita de frango**
 
 ### Ingredientes
 
