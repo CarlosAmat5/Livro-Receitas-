@@ -1,4 +1,4 @@
-# **Receita de frango**
+# **Receita Strogonoff de frango**
 
 ### Ingredientes
 
